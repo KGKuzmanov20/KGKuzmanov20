@@ -29,6 +29,6 @@
 
 <hr>
 
-# Foucus on yourself not others!
+# NO PAIN = NO GAIN
 
 </div>
